@@ -14,7 +14,7 @@
 
 <br>
 
-- Me apaciona Programar y mas si es front-end 
+- Me apaciona Programar ser full stack y la IA
 - Soy autonomo , me gusta mucho estudiar
 - Me adapto facil a las nuevas tecnologias
 
